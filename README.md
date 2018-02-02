@@ -1,0 +1,2 @@
+# kaneki
+get cash
